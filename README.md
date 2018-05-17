@@ -9,7 +9,7 @@ jest to dla mnie coś nowego i obcego lecz,
 dla chcącego nic trudnego i chętnie poznam kogoś 
 kto mi z tym pomoże.
                             
-                                                     Miłego dnia życzy Dr_Gripex !
+                                                                                             Miłego dnia życzy Dr_Gripex !
                                                      
                             
  
